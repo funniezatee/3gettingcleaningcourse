@@ -1,3 +1,4 @@
+**If the file appears hard to read, you may need to download and open seperately.
 
 ######################################################################################################
 
